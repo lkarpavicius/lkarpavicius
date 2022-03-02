@@ -1,0 +1,2 @@
+- Hi, I’m @lkarpavicius, a PhD student at Aarhus University (DK) studying Environmental Economics
+- You can learn more about me and my research here: https://www.notion.so/Luiza-Karpavicius-d02c9db52c104eabaccd87aa3b2fe7fd
